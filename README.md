@@ -618,3 +618,5 @@
 [<img src='https://github.com/Shalmon123/Doujinshi/blob/main/Covers/image--153.jpg?raw=true'>](https://nhentai.net/g/311063/'])
 
 
+### [**Okitsune Winter**](https://nhentai.net/g/194351/)
+[<img src='https://github.com/Shalmon123/Doujinshi/blob/main/Covers/image--153.jpg?raw=true'>](https://nhentai.net/g/194351/)
